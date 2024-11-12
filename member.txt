@@ -1,3 +1,5 @@
 shizuoka A
 shizuoka B
+shizuoka BB1
 shizuoka C
+
