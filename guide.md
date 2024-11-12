@@ -15,4 +15,4 @@
 3. MEGAドン・キホーテUNY 浜松泉町店
 > https://maefuji.com/img/page_photo/269/zi6p7ci8y2.jpg
   * 1階は食料品、2階は衣服・家電・日用品など様々
-  * 行けばだいたいある
+  * だいたいなんでもある
